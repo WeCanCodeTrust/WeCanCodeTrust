@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Anthony 
+- ❤️ I’m interested in everything its so much for me to learn qwq
+- 🌱 I’m currently learning python and c# 
+- 📫 You can reach me on discord WeCanCode
+- 😄 Pronouns: She/her/he/him or ata(abovethemall)
